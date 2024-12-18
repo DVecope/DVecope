@@ -1,0 +1,7 @@
+- 👋 Hola, Yo soy @DVecope
+- 👀 Estoy interesando en aprender programación en diversos lenguajes como lo son python y c++
+- 🌱 Me encuentro estudiando en la UTEC la carrera de Ciencias de la Computación, así como inglés en el Icpna.
+- 💞️ Estoy buscando colaborar con colegas destacados para aprender de ellos conceptos de alto nivel de programación.
+- 📫 ¿Cómo contactarte conmigo? correo: ldeguevaradiego@gmail.com | Mi linkeding: https://www.linkedin.com/in/diego-abraham-ladr%C3%B3n-de-guevara-aguirre-26155a261/
+- 😄 Sobrenombres: Vecope, DVecope.
+- ⚡ Dato Curioso: He estudiado música en un conservatorio 4 años, por lo que se me da relativamente sencillo comprender cómo funciona la música por dentro, además me destaco tocando la guitarra. 
